@@ -22,7 +22,7 @@
 
 2. Heat **10 tablespoons** butter in a 10-inch skillet over medium-high heat until melted, about 2 minutes. Continue cooking, swirling pan constantly until butter is dark golden brown and has nutty aroma, 1 to 3 minutes. Remove skillet from heat and, using heatproof spatula, transfer browned butter to large heatproof bowl. Stir remaining **4 tablespoons** butter into hot butter until completely melted.
 
-3. Add both sugars, salt and vanilla to bowl with butter and whisk until fully incorporated. Add egg and yolk and which until mixture is smooth with no sugar lumps remaining, about 30 seconds. Let mixture stand for 3 minutes then whish for 30 seconds. Repeat process of resting and whisking 2 more times until mixture is thick, smooth and shiny.
+3. Add both sugars, salt and vanilla to bowl with butter and whisk until fully incorporated. Add egg and yolk and whisk until mixture is smooth with no sugar lumps remaining, about 30 seconds. Let mixture stand for 3 minutes then whish for 30 seconds. Repeat process of resting and whisking 2 more times until mixture is thick, smooth and shiny.
 
 4. Divide dough into 16 portions, each about 3 tablespoons. Arrange 2 inches apart on prepared baking sheets, 8 dough balls per sheet.
 
