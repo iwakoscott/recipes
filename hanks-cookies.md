@@ -35,3 +35,6 @@
 - Use parchment paper.
 - Do not double recipe.
 - These cookies are meant to be large. They are a bit fussy but work it.
+
+## Satoshi's Notes:
+- For soft and chewy cookies, I recommend shaping the cookie dough into disks and refrigerating over night.
