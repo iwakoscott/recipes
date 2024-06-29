@@ -37,4 +37,8 @@
 - These cookies are meant to be large. They are a bit fussy but work it.
 
 ## Satoshi's Notes:
-- For soft and chewy cookies, I recommend shaping the cookie dough into disks and refrigerating over night.
+- For soft and chewy cookies, I recommend shaping the cookie dough into disks and refrigerating over night. Do not let thaw before baking.
+
+## Darya's Notes:
+
+- Bake for 12 minutes, and let rest on baking sheet for 3-4 minutes. Then transfer to a wire rack to cool completely. 
